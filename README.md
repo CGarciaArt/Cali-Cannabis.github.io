@@ -1,2 +1,2 @@
-# KTea
-Blends of spices and teas.
+# Cali Cannabis
+Love for Cannabis.
